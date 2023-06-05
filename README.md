@@ -1,3 +1,4 @@
 Olá! Eu sou o Gelson Wirti Junior.
 
-- 🖥️ Sou Engenheiro de Computação.
+- 22 anos.
+- 🖥️ Engenheiro de Computação - UFGD.
